@@ -1,1 +1,1 @@
-My first readme
+Mr Sodiq is a good teacher
